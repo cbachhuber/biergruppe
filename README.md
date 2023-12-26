@@ -14,11 +14,11 @@ Am 14.12.2014 hatte Humpsn die Idee, das ihm geschenkte Weißwurstfrühstück am
 Um 18:47 Uhr schlug er dieses Vorgehen der Gruppe auf der Kommunikationsplattform WhatsApp vor und erhielt von fast allen nicht-Mitgliedern positive Rückmeldung.
 Seither ist das weihnachtliche Weißwurstfrühstück eine Instutition, die jährlich mit reger Teilnahme abgehalten wird.
 
-### 2014
+#### 2014
 
 Initiales Weißwurstfrühstück beim Barwerk, noch mit Kasi und Knödler.
 
-### 2016
+#### 2016
 
 Beim Humpsn?
 
@@ -30,7 +30,7 @@ Im Tennisheim Altomünster wurden unter Teilnahme von J (sprich [/dʒeɪ/](https
 
 Eines der süffigsten Weißwurstfrühstücke.
 
-### 2022
+#### 2022
 
 In Jürgens Wohnung
 
