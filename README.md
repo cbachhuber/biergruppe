@@ -60,3 +60,16 @@ Die nicht-Mitglieder der Biergruppe n.e.V. kommunizieren ihren Konsum über Bild
 ### Politisches
 
 #### Revolten
+
+#### Die 10 Bier Gebote
+
+1. Du sollst nicht begehren deines nächsten Bieres!
+2. Warmes Bier ist immer noch kälter als kein Bier!
+3. Du darfst niemandem in den Schankarm glanga!
+4. Du darfst kein Bier verschütten!
+5. Du sollst neben Bier keinen Gott haben!
+6. Du darfst alkoholfreien soach nie Bier nennen!
+7. Du sollst den 23. April 1516 in Ehren halten!
+8. Du sollst Hopfen und Malz ehren!
+9. Du darfst nie ein Prost ausschlagen!
+10. Du musst deiner Brauerei treu bleiben!
