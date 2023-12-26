@@ -26,7 +26,7 @@ Beim Humpsn?
 
 Im Tennisheim Altomünster wurden unter Teilnahme von J (sprich [/dʒeɪ/](https://dictionary.cambridge.org/de/aussprache/englisch/j)) diverse Biersorten verkostet:
 
-![](https://lh3.googleusercontent.com/pw/ABLVV86ae8vSrgHdSRkB_I87pq-XrGtdLQMK3vJ19e98QUgVVMimnWh9djWpMUZxvMf3YWEqMuMnGjUyk_v37i5qqBIkLc-0kcajxcKX1UOGiDKuG-HlvxQeM-QCjFSCmeGLx9JYrFIX40josuSIAFNDnNQ2lA=w1923-h753-s-no-gm)
+<img src="https://lh3.googleusercontent.com/pw/ABLVV86ae8vSrgHdSRkB_I87pq-XrGtdLQMK3vJ19e98QUgVVMimnWh9djWpMUZxvMf3YWEqMuMnGjUyk_v37i5qqBIkLc-0kcajxcKX1UOGiDKuG-HlvxQeM-QCjFSCmeGLx9JYrFIX40josuSIAFNDnNQ2lA=w1923-h753-s-no-gm" height="300" />
 
 Eines der süffigsten Weißwurstfrühstücke.
 
