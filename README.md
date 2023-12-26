@@ -18,10 +18,21 @@ Seither ist das weihnachtliche Weißwurstfrühstück eine Instutition, die jähr
 
 Initiales Weißwurstfrühstück beim Barwerk, noch mit Kasi und Knödler.
 
+### 2016
+
+Beim Humpsn?
+
 #### 2017
 
-Im Tennisheim Altomünster wurden unter Teilnahme von "J" diverse Biersorten verkostet.
+Im Tennisheim Altomünster wurden unter Teilnahme von J (sprich [/dʒeɪ/](https://dictionary.cambridge.org/de/aussprache/englisch/j)) diverse Biersorten verkostet:
+
+![](https://lh3.googleusercontent.com/pw/ABLVV86ae8vSrgHdSRkB_I87pq-XrGtdLQMK3vJ19e98QUgVVMimnWh9djWpMUZxvMf3YWEqMuMnGjUyk_v37i5qqBIkLc-0kcajxcKX1UOGiDKuG-HlvxQeM-QCjFSCmeGLx9JYrFIX40josuSIAFNDnNQ2lA=w1923-h753-s-no-gm)
+
 Eines der süffigsten Weißwurstfrühstücke.
+
+### 2022
+
+In Jürgens Wohnung
 
 #### 2023
 
